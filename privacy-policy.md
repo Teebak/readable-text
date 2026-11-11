@@ -24,4 +24,4 @@ If this policy changes, the updated version will be published on this page with 
 
 ## Contact
 
-Questions about this policy: teeba.kaaed@gmail.com 
+Questions about this policy: teebanot@gmail.com 
